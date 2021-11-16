@@ -1,1 +1,1 @@
-![](name-of-giphy.gif)
+![](https://github.com/ToasturBruh/ToasturBruh/blob/main/img/amogus.gif)
