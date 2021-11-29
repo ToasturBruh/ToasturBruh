@@ -1,1 +1,1 @@
-![](https://github.com/ToasturBruh/ToasturBruh/blob/main/img/amogus.gif)
+![](https://github.com/ToasturBruh/ToasturBruh/blob/main/img/tinyspunchdance.gif)
